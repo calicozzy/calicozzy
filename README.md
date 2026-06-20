@@ -1,4 +1,12 @@
 hayyyyy thar chicken thangggg XP
+<div align="center">
+<img align="left" width="800" height="768" src="https://file.garden/ajYSxSoeCzLAixKu/lalalala">
+i am not making thsi pretty no wya not doing allat umm anyways
+uyo shoud come talk to me.. i am scared btu i wana make friends :angry
+ummmmmmmmmmmmmmmmmmmmmmmmmmm
+i realy like aigis. and. kaveh. i am usually them :)
+dnc or heavy inspo questionmark ?
+
 
 
 
