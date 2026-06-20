@@ -1,4 +1,6 @@
-## Hi there 👋
+hayyyyy thar chicken thangggg XP
+
+
 
 <!--
 **calicozzy/calicozzy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
