@@ -8,3 +8,4 @@ ummmmmmmmmmmmmmmmmmmmmmmmmmm
 i realy like aigis. squido. kaveh. i am usually them :) i sohuld prboably make more ponies. gulp.
 dnc or heavy inspo questionmark ?
 okay byeeeeeeeeeeeeeeeeeeee
+CHRONICALLY OFFTAB BTWW T_T PELASPLEAS W2I.... GULP
