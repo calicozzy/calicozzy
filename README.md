@@ -5,7 +5,7 @@ hayyyyy thar chicken thangggg XP
 i am not making thsi pretty no wya not doing allat umm anyways
 uyo shoud come talk to me.. i am scared btu i wana make friends :angry
 ummmmmmmmmmmmmmmmmmmmmmmmmmm
-i realy like aigis. squido. kaveh. i am usually them :) i sohuld prboably make more ponies. gulp.
+i realy like __aigis. squido. kaveh__. i am usually them :) i sohuld prboably make more ponies. gulp.
 dnc or heavy inspo questionmark ?
 okay byeeeeeeeeeeeeeeeeeeee
-CHRONICALLY OFFTAB BTWW T_T PELASPLEAS W2I.... GULP
+#### CHRONICALLY OFFTAB BTWW T_T PELASPLEAS W2I.... GULP
