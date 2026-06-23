@@ -9,3 +9,4 @@ i realy like __aigis. squido. kaveh__. i am usually them :) i sohuld prboably ma
 dnc or heavy inspo questionmark ?
 okay byeeeeeeeeeeeeeeeeeeee
 #### CHRONICALLY OFFTAB BTWW T_T PELASPLEAS W2I.... GULP
+"𝓷𝓮𝓿𝓮𝓻 𝓵𝓮𝓽 𝓽𝓱𝓮𝓶 𝓼𝓮𝓷𝓼𝓮 𝔂𝓸𝓾𝓻 𝓯𝓮𝓪𝓻" -rainecalicoz 2026 when someone sits with her on ponytown oh no ijm sory i also cnat hlod covnersations whne im Scared As Heck
